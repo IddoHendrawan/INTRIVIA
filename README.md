@@ -12,4 +12,4 @@
 [SERU BANGET BERTEMU TEMAN TEMAN SATU DEPARTEMEN] 
 
 ## Harapan Kuliah 
-[Harapan saya pada saat kuliah adalah saya mampu beradaptasi dan menguasai di prodi teknik informatika ini, lalu saya ingin meningkatkan soft skill dan hard skill saya dan mempunyai banyak teman  ] 
+[Harapan saya pada saat kuliah adalah saya mampu beradaptasi dan menguasai di prodi teknik informatika ini, lalu saya ingin meningkatkan soft skill dan hard skill saya dan mempunyai banyak teman  ]
